@@ -1,4 +1,4 @@
-# 
+# Automático ChatMind kit de herramientas. Descarga e instala con archivos verificados y código abierto — rápido, seguro y fácil de usar.
 
 
 
